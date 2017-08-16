@@ -1,0 +1,4 @@
+*Notes and thoughts on reading
+
+*Forward
+Premise sounds promising
